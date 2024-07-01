@@ -3,7 +3,8 @@
 ![runrunrunlittleman](https://github.com/miudacat/miudacat/assets/167997747/cb446707-192c-4ee7-9da0-dec00a702d8a)
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
- You can call me miu, cake, Laide or anything you want >_<!
+ You can call me miu, cake, Laide or anything you want >_<! ![compnyon](https://github.com/miudacat/miudacat/assets/167997747/84ebdff3-332c-41ee-a207-37c11dd1fb42)
+
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
  I'm a Vietnamese#1 - Safe - 18+ severs player
