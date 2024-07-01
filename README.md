@@ -20,14 +20,16 @@
   PROSHIPS DNI!! GO KYS >_< !!1!
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
-  Problematics, some MHA and TR mfs dni. Go touch some grass.
+  Problematics, some MHA and TR mfs dni. Go touch some grass. ![year of the dog](https://github.com/miudacat/miudacat/assets/167997747/48ee5e3c-da10-44d9-8498-888fe0231d12)
+
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
   I swear I'm friendly xcc ! ![cat snuglge](https://github.com/miudacat/miudacat/assets/167997747/a9d67e8e-6360-4d57-ad29-1e25afccee79)
 
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
-  Have a nice day peeps ^_^ !
+  Have a nice day peeps ^_^ ! ![it doesnt hurt](https://github.com/miudacat/miudacat/assets/167997747/0647d06f-c4c1-43f1-86d6-7d7aef85c524)
+
 
 ![randalmovingiconmultiple-big](https://github.com/miudacat/miudacat/assets/167997747/62cd42b0-6fda-4f6c-b86e-58f7b608c622)
 
