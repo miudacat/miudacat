@@ -1,4 +1,4 @@
-  ![satoru-tsukada-ranfren](https://github.com/miudacat/miudacat/assets/167997747/bc6fd96a-a769-49f5-be75-182c4125c7a4)
+   ![satoru-tsukada-ranfren](https://github.com/miudacat/miudacat/assets/167997747/bc6fd96a-a769-49f5-be75-182c4125c7a4)
 
 ![runrunrunlittleman](https://github.com/miudacat/miudacat/assets/167997747/cb446707-192c-4ee7-9da0-dec00a702d8a)
 
