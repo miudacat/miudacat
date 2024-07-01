@@ -11,7 +11,8 @@
 
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
-  I'm a Vietnamese#1 - Safe - 18+ severs player
+  I'm a Vietnamese#1 - Safe - 18+ severs player ![smash](https://github.com/miudacat/miudacat/assets/167997747/032905c4-cd39-4e67-915e-1ed25825c039)
+
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
   I usually go offtab and afk so please w2i if you want to int or c+h ! ![transformation to ego](https://github.com/miudacat/miudacat/assets/167997747/b56aac34-1927-4682-9301-7f05e02a91ca)
@@ -23,7 +24,8 @@
 
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
-  PROSHIPS DNI!! GO KYS >_< !!1!
+  PROSHIPS DNI!! GO KYS >_< !!1! ![imploding catman](https://github.com/miudacat/miudacat/assets/167997747/b28b7072-eea4-4ff9-9d3e-e422acc1be4d)
+
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
   Problematics, some MHA and TR mfs dni. Go touch some grass. ![year of the dog](https://github.com/miudacat/miudacat/assets/167997747/48ee5e3c-da10-44d9-8498-888fe0231d12)
