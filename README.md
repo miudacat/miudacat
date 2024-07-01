@@ -10,7 +10,8 @@
   I'm a Vietnamese#1 - Safe - 18+ severs player
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
-  I usually go offtab and afk so please w2i if you want to int or c+h ! ![satorukun2](https://github.com/miudacat/miudacat/assets/167997747/a5090b67-2aa8-470b-9d9d-f937d6f252de)
+  I usually go offtab and afk so please w2i if you want to int or c+h ! ![transformation to ego](https://github.com/miudacat/miudacat/assets/167997747/b56aac34-1927-4682-9301-7f05e02a91ca)
+ ![satorukun2](https://github.com/miudacat/miudacat/assets/167997747/a5090b67-2aa8-470b-9d9d-f937d6f252de)
 
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
