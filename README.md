@@ -1,6 +1,6 @@
    ![satoru-tsukada-ranfren](https://github.com/miudacat/miudacat/assets/167997747/bc6fd96a-a769-49f5-be75-182c4125c7a4)
 
-![runrunrunlittleman](https://github.com/miudacat/miudacat/assets/167997747/cb446707-192c-4ee7-9da0-dec00a702d8a)
+![mg12](https://github.com/miudacat/miudacat/assets/167997747/a043380e-e11a-49c4-a2d9-a037f9cbab6e)
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
   You can call me miu, cake, Laide or anything you want >_<! ![compnyon](https://github.com/miudacat/miudacat/assets/167997747/84ebdff3-332c-41ee-a207-37c11dd1fb42)
@@ -15,7 +15,8 @@
 
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
-  Satoran, Lutherandal dni.
+  Satoran, Lutherandal dni. ![satospriteA-BIG](https://github.com/miudacat/miudacat/assets/167997747/2973e07a-d16d-408b-8d65-2eb5ff1432ab)
+
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
   PROSHIPS DNI!! GO KYS >_< !!1!
