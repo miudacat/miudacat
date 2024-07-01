@@ -2,6 +2,8 @@
 
 ![mg12](https://github.com/miudacat/miudacat/assets/167997747/a043380e-e11a-49c4-a2d9-a037f9cbab6e)
 ![mag13](https://github.com/miudacat/miudacat/assets/167997747/b947c909-f57f-48bf-a754-005097d5c46c)
+![mg12](https://github.com/miudacat/miudacat/assets/167997747/a043380e-e11a-49c4-a2d9-a037f9cbab6e)
+![mag13](https://github.com/miudacat/miudacat/assets/167997747/b947c909-f57f-48bf-a754-005097d5c46c)
 
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
