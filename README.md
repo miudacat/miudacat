@@ -5,26 +5,26 @@
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
  You can call me miu, cake, Laide or anything you want >_<!
 
-![icon](https://github.com/miudacat/miudacat/assets/167997747/d8f1d47a-096a-4d43-9ed8-b4cb65628527)
+![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
  I'm a Vietnamese#1 - Safe - 18+ severs player
 
-![icon](https://github.com/miudacat/miudacat/assets/167997747/f39c3d0c-e86c-44af-ade0-0b18558b2c10)
+![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
  I usually go offtab and afk so please w2i if you want to int or c+h ! ![satorukun2](https://github.com/miudacat/miudacat/assets/167997747/a5090b67-2aa8-470b-9d9d-f937d6f252de)
 
 
-![icon](https://github.com/miudacat/miudacat/assets/167997747/549e1d26-a493-4afc-aabc-5fa792df2d4b)
+![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
  Satoran, Lutherandal dni.
 
-![icon](https://github.com/miudacat/miudacat/assets/167997747/30aab4fe-8052-4dbb-bb00-3c8e5bfb2ff5)
+![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
  PROSHIPS DNI!! GO KYS >_< !!1!
 
-![icon](https://github.com/miudacat/miudacat/assets/167997747/e36c4b01-91bb-43e8-a379-7ff1dbd2665a)
+![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
  Problematics, some MHA and TR mfs dni. Go touch some grass.
 
-![icon](https://github.com/miudacat/miudacat/assets/167997747/194c2215-b9fb-47ba-a60b-1fc4cb1a93a9)
+![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
  I swear I'm friendly xcc !
 
-![icon](https://github.com/miudacat/miudacat/assets/167997747/9fd1e60e-fc7a-46cb-ac7c-8d1b614d8554)
+![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
  Have a nice day peeps ^_^ !
 
 ![randalmovingiconmultiple-big](https://github.com/miudacat/miudacat/assets/167997747/62cd42b0-6fda-4f6c-b86e-58f7b608c622)
