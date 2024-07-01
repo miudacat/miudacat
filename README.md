@@ -23,7 +23,8 @@
  Problematics, some MHA and TR mfs dni. Go touch some grass.
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
- I swear I'm friendly xcc !
+ I swear I'm friendly xcc ! ![cat snuglge](https://github.com/miudacat/miudacat/assets/167997747/a9d67e8e-6360-4d57-ad29-1e25afccee79)
+
 
 ![icon](https://github.com/miudacat/miudacat/assets/167997747/b55a0ee8-7807-4139-a513-226b5eaad528)
  Have a nice day peeps ^_^ !
