@@ -1,1 +1,2 @@
-   ![satoru-tsukada-ranfren](https://github.com/miudacat/miudacat/assets/167997747/bc6fd96a-a769-49f5-be75-182c4125c7a4)
+![Screenshot 2024-10-27 214758](https://github.com/user-attachments/assets/79bc518f-311e-4e81-ac9b-349f83eaf675)
+![Screenshot 2024-10-27 214714](https://github.com/user-attachments/assets/6e6ec34c-8115-4d9d-bb4c-551377fd0d1e)
