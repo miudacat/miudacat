@@ -1,4 +1,4 @@
-sitting by myself most of the time so i will be very happy if u go sitting w me especially matching couple w my skins :3 ![8aef6aa02a0eef3a395b159897e7437f](https://github.com/user-attachments/assets/68164b82-267c-419e-bfdf-cbb1b12c2329)
+sitting by myself most of the time so i will be very happy if u go sitting w me especially matching couple w my skins :3 + feel free to c+h!! ![8aef6aa02a0eef3a395b159897e7437f](https://github.com/user-attachments/assets/68164b82-267c-419e-bfdf-cbb1b12c2329)
 
 ![Screenshot 2024-10-27 214714](https://github.com/user-attachments/assets/6e6ec34c-8115-4d9d-bb4c-551377fd0d1e)
 ![](https://komarev.com/ghpvc/?username=miudacat&color=red)
