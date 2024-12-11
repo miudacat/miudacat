@@ -12,7 +12,8 @@
 
 - I can be a bit dry when I feel sad or nervous (any negative moods!) sorry :c! 
 
-- DNI AND INT AT MY RENTRY!! ![8aef6aa02a0eef3a395b159897e7437f](https://github.com/user-attachments/assets/68164b82-267c-419e-bfdf-cbb1b12c2329)
+- DNI AND INT AT MY RENTRY!! ![a2803489-acec-4150-b170-de79c0a456ea](https://github.com/user-attachments/assets/caf7f77d-1bf1-4f66-b2db-d6ad126759f1)
+
 
 Colour my tree pls X3 !!
 https://colormytree.me/2024/01JE6H970973FSJ8DCZ2RFPG2E
