@@ -1,6 +1,11 @@
-sitting by myself most of the time so i will be very happy if u go sitting w me especially matching couple w my skins :3 + feel free to c+h!! ![8aef6aa02a0eef3a395b159897e7437f](https://github.com/user-attachments/assets/68164b82-267c-419e-bfdf-cbb1b12c2329)
+I'm not really an English speaker. Always hope y'all understand what I say..
+by myself most of the time so I will very love you if u sitting w me or matching couples! 
+I'm a sensitive and clingy person :c very, so pls if you feel annoyed SAY IT TO ME PLEASE!!
+I love people, so I would be a lil bit weird when I joke and express my feeling pls don't hate me i'm afraid of being hated by people especially who I like and cool people D:
+C+H always unless I put dni or iwec!!
+I may be a bit too comfy when I joke so pls say sth if my jokes go too far :c 
+I can be a bit dry when I feel sad or nervous (any negative moods!) sorry :c! 
+DNI AND INT AT MY RENTRY!! ![8aef6aa02a0eef3a395b159897e7437f](https://github.com/user-attachments/assets/68164b82-267c-419e-bfdf-cbb1b12c2329)
 Colour my tree pls X3 !!
 https://colormytree.me/2024/01JE6H970973FSJ8DCZ2RFPG2E
-![Screenshot 2024-10-27 214714](https://github.com/user-attachments/assets/6e6ec34c-8115-4d9d-bb4c-551377fd0d1e)
 ![](https://komarev.com/ghpvc/?username=miudacat&color=red)
-![Screenshot 2024-10-27 214758](https://github.com/user-attachments/assets/79bc518f-311e-4e81-ac9b-349f83eaf675)
