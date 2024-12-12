@@ -12,7 +12,9 @@
 
 - I may be a bit too comfy when I joke so pls say sth if my jokes go too far :c 
 
-- I can be a bit dry when I feel sad or nervous (any negative moods!) sorry :c! 
+- I can be a bit dry when I feel sad or nervous (any negative moods!) sorry :c!
+
+- Usually in safe - vietnamese#1 !
 
 - DNI AND INT AT MY STRAWPAGE!! ![470006732_585923167470176_8980655733663677084_n](https://github.com/user-attachments/assets/e0e3fde7-52e6-4508-8ee2-2955f1eb7576)
 
