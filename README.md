@@ -2,7 +2,9 @@
 
 - I'm not really an English speaker. Always hope y'all understand what I say..
 
-- by myself most of the time so I will very love you if u sitting w me or matching couples! 
+- by myself most of the time so I will very love you if u sitting w me or matching couples!
+
+- Usually go offtab so please w2i if you want to interact w me prettypleasesedfse
 
 - I'm a sensitive and clingy person :c very, so pls if you feel annoyed SAY IT TO ME PLEASE!!
 
