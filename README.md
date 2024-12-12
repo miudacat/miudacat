@@ -6,6 +6,8 @@
 
 - I'm a sensitive and clingy person :c very, so pls if you feel annoyed SAY IT TO ME PLEASE!!
 
+- Not a fan of mw ships so I'd like to jokeship instead ;3
+
 - I love people, so I would be a lil bit weird when I joke or express my feeling pls don't hate me i'm afraid of being hated by people especially who I like and cool people D:
 
 - C+H always unless I put dni or iwec!!
