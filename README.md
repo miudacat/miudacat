@@ -6,7 +6,7 @@
 
 - Usually go offtab so please w2i if you want to interact w me prettypleasesedfse
 
-- I'm a sensitive and clingy person :c very, so pls if you feel annoyed SAY IT TO ME PLEASE!!
+- I'm a sensitive and clingy person :c very, so pls if you feel annoyed TELL ME PLEASE!!
 
 - I CAN'T stand being ignored by people and friends, my mood will go down BAD if I feel like I'm being ignored (will go silent and hiding in somewhere/srs)
 
