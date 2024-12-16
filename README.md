@@ -22,7 +22,7 @@
 
 - Usually in safe - vietnamese#1 !
 
-- DNI AND INT IN MY STRAWPAGE!!  ![470006732_585923167470176_8980655733663677084_n](https://github.com/user-attachments/assets/e0e3fde7-52e6-4508-8ee2-2955f1eb7576)
+- DNI AND INT IN MY STRAWPAGE!!  ![5b8a03f812a4d705eab994c377281bfb](https://github.com/user-attachments/assets/aca0f756-669f-4e82-9fa5-b5fd5eba4aaf)
 
 
 
