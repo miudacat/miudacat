@@ -24,8 +24,6 @@
 
 - DNI AND INT IN MY STRAWPAGE!!  
 
-Colour my tree pls X3 !!
-https://colormytree.me/2024/01JE6H970973FSJ8DCZ2RFPG2E
 
 ![5b8a03f812a4d705eab994c377281bfb](https://github.com/user-attachments/assets/aca0f756-669f-4e82-9fa5-b5fd5eba4aaf)
 
