@@ -28,6 +28,6 @@
 
 - DNI AND INT IN MY STRAWPAGE!!  
 
+![fabfcc06135a7e57c490ec0350491d51](https://github.com/user-attachments/assets/62b499e7-a3e0-47ab-a159-a64b542c7094)
 
-![21964fa69ee531ead5ecc27a373aca6a](https://github.com/user-attachments/assets/0d5b4185-5519-42a4-a3ea-038ecfb40ad8)
 
