@@ -26,7 +26,7 @@
 
 - Usually in safe - vietnamese#1 !
 
-- DNI AND INT IN MY STRAWPAGE!!  
+- DNIs and INT on my strawpage ^w^
 
 ![fabfcc06135a7e57c490ec0350491d51](https://github.com/user-attachments/assets/62b499e7-a3e0-47ab-a159-a64b542c7094)
 
