@@ -1,4 +1,10 @@
 ![](https://komarev.com/ghpvc/?username=miudacat&color=red)
+                                   
+     
+
+https://github.com/user-attachments/assets/7c08e8b3-2dda-4f02-9f49-b4b71cd1883f
+
+
                                            !!BYI!!
 - I'm not really an English speaker. Always hope y'all understand what I say..
 
