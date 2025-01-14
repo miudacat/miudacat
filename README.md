@@ -6,6 +6,8 @@ https://github.com/user-attachments/assets/7c08e8b3-2dda-4f02-9f49-b4b71cd1883f
 
 
                                            !!BYI!!
+- Y'all can call me miu / cake or Anya! I fw nicknames too but Id prefer by people I have known for a while ty :-3
+                                   
 - I'm not really an English speaker. Always hope y'all understand what I say..
 
 - by myself most of the time so I will very love you if u sitting w me or matching couples!
