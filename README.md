@@ -6,6 +6,9 @@
 
 
 
+                                                                ![koriand_r_-_starfire___1_-removebg-preview](https://github.com/user-attachments/assets/aec9ca4b-cf0a-4f68-8922-00c0cfba57e8)
+ 
+                                                                  
                                                                   !!BYI!!
                                                                 
 - Y'all can call me miu / cake or Kori-Star! I fw nicknames too but Id prefer by people I have known for a while ty :-3
