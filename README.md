@@ -5,3 +5,5 @@
 
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rrhu462t33ijmprzbnvlresd7a&cover_image=true&theme=novatorem&show_offline=true&background_color=826d97&interchange=false&bar_color=c38dc1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
                                   ![download (70)](https://github.com/user-attachments/assets/8c276d7a-7dd5-44e1-b28b-b1b973ac2611)
+
+![IF YOU DON'T HAVE THIS ON YOUR PROFILE YOU'RE NOT WORTHY](https://github.com/user-attachments/assets/0eb8787c-cb1a-4856-a69d-baac29b37d97)
