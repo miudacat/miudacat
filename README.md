@@ -1,4 +1,6 @@
-[my dcoc :-3]([https://rentry.co/wn2h2dng](https://rentry.co/aboutvulpecula))
+[my dcoc :-3](https://rentry.co/aboutvulpecula)
+
+
 ![download (69)](https://github.com/user-attachments/assets/c22fb279-ec8e-4e62-8a6a-2f993bdd7019)
 
 ![](https://komarev.com/ghpvc/?username=miudacat&color=ff69b4)
