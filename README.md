@@ -1,3 +1,4 @@
+[my dcoc :-3]([https://rentry.co/wn2h2dng](https://rentry.co/aboutvulpecula))
 ![download (69)](https://github.com/user-attachments/assets/c22fb279-ec8e-4e62-8a6a-2f993bdd7019)
 
 ![](https://komarev.com/ghpvc/?username=miudacat&color=ff69b4)
@@ -7,4 +8,4 @@
                                   ![download (70)](https://github.com/user-attachments/assets/8c276d7a-7dd5-44e1-b28b-b1b973ac2611)
 
 ![IF YOU DON'T HAVE THIS ON YOUR PROFILE YOU'RE NOT WORTHY](https://github.com/user-attachments/assets/0eb8787c-cb1a-4856-a69d-baac29b37d97)
-[my dcoc :-3](https://rentry.co/wn2h2dng)
+
