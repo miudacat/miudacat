@@ -1,3 +1,3 @@
 ![](https://komarev.com/ghpvc/?username=miudacat&color=yellow)
                               
-<img width="1128" height="1600" alt="image" src="https://github.com/user-attachments/assets/c9510ac5-07a9-417d-8124-7f12e5c3de0e" />
+<img width="735" height="1043" alt="image" src="https://github.com/user-attachments/assets/3b429b0d-8590-4076-8b63-0163640c1d1d" />
